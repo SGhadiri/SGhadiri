@@ -1,4 +1,4 @@
 Hi, I’m @SGhadiri.  
-A Thermo-fluid Mechanics enthusiast.
+A thermo-fluid Mechanics enthusiast.
 
 
